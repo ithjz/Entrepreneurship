@@ -1,4 +1,10 @@
 # Entrepreneurship
+
+
+
+我的邮箱是
+My mailbox is  1437352232@qq.com
+
 店主张虎近期成为了中国传媒大学西街上创业的传奇小人物，大家知晓他的创业成功，除了其在西街上面开的卤肉卷店年年都有火爆生意之外，还因为他个人开店的独特经历故事。张虎最早是北京知名软件学院毕业生，在2010年毕业之际，看着同窗学友们一个个去知名网络软件公司就职发展，坐着舒适的办公室和从事着令人羡慕的网络白领职业，从小就有自己创业梦想的张虎，在做职业软件网络师工作与自主小型创业发展两种选择之中经历了内心的纠结和彷徨，权衡再三不顾父母的反对和亲朋的建议，毅然尊重自己的选择，在熟人推荐之下投身了与软件网络专业毫不相干的中国特色美食小吃行业，进入滋美卤肉卷中国传媒大学当实习店长，从此开始了自己创业之旅。
 The shop advocates that Tiger has recently become a legendary figure in the West Street entrepreneurship of China Media University. Everyone knows that his success in entrepreneurship is due to his unique experience of opening a shop, in addition to the hot business of the steamed meat roll shop on the West Street every year. Zhang Hu was the first graduate of Beijing famous software institute. On graduation in 2010, he watched his classmates and friends go to famous network software companies to take up their jobs and develop. He sat in a comfortable office and engaged in an enviable network white-collar career. From an early age, Zhang Hu had his own dream of starting a business. He was working as a professional software netizen. Among the two choices of independent small-scale entrepreneurship development, we experienced inner entanglement and hesitation, weighed and weighed the opposition of parents and suggestions of relatives and friends repeatedly, respected our choice resolutely, and, on the recommendation of acquaintances, joined the snack industry with Chinese characteristics which had nothing to do with software network specialty, and entered the Chinese Media University of nourishing delicious steamed meat rolls. Studying as an intern shop manager, I started my own business trip from then on.
 张虎在店里面经过几个月的时间操作与管理经验，正式向总部开始买断经营西街的卤肉卷店，每天面对传媒大学学生消费群体的特点，充分利用大学生的思维和开阔的眼界，创新型的将由卤肉卷店从传统的单纯店主售卖模式，变为与顾客的优质美食分享互动，以顾客为中心的现代营销模式，从产品的口感、品质等级、新产品的开发、食材的安全采购，无添加非油炸的理念，针对学生美食的促销外送等方面无一不以本区域消费者的喜好角度来合理的选择配置，通过市场调查，顾客消费体验，产品销售分析报告等方法去进行最佳的产品制作和店面营销方法的配置，经过张虎店里面出来的特色卷品和配套美食，从口感到品质都得到了充分的保障，再加上良好的服务和优惠的促销，张虎的卤肉卷店每天都在黄金时间人流不断，几平米的小店，几年来每天营业利润最少也在一两千，年利润能达几十万。
